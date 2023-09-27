@@ -3,19 +3,5 @@
 - 🌱 Atualmente estou aprendendo a criar jogo
 - 💞️ Estou procurando colaborar jogos...
 - 📫 Como chegar até mim rosario.thayna@escola.pr.gov.br
--
--
--
--
--
--
--
--
--
--
--
--
 
-
-
-![](https://media.tenor.com/ZvkygSP_96EAAAAd/roronoa-zoro-one-piece.gif)
+![](https://media.tenor.com/q_qq9hr3WkcAAAAC/gojo-satoru.gif)
