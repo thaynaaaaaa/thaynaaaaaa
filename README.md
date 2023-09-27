@@ -15,4 +15,7 @@
 -
 -
 -
-![](https://tenor.com/baweZ.gif)
+
+
+
+![](https://media.tenor.com/ZvkygSP_96EAAAAd/roronoa-zoro-one-piece.gif)
